@@ -1,0 +1,1 @@
+# HUGX-VISUAL-2026
